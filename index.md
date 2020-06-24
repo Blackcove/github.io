@@ -6,3 +6,6 @@ Twenty-year-old Will Hunting of South Boston is a self-taught genius, though he 
 * highly inteligent
 * young
 * impulsive
+
+> You wasted $150,000 on an education
+> you coulda got for $1.50 in late fees at the public library.
