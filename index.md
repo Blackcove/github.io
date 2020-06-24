@@ -9,3 +9,5 @@ Twenty-year-old Will Hunting of South Boston is a self-taught genius, though he 
 
 > You wasted $150,000 on an education
 > you coulda got for $1.50 in late fees at the public library.
+
+<img src="https://gemeinsam-unterstuetzen.de/wp-content/uploads/2018/09/2018-09-GoodWillHunting...Filmfoto.jpg"/>
